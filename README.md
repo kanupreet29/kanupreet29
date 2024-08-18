@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @kanupreet<br>👀 I’m interested in Software Development and Technology<br>🌱 I’m currently learning new skills<br>📫 How to reach me : kanupreetarora29@gmail.com<br>😄 Pronouns: she/her<br>⚡ Fun fact: I am always smiling
+👋 Hi, I’m @kanupreet<br>👀 I’m interested in Software Development and Information Security<br>🌱 I’m currently learning new skills<br>📫 How to reach me : kanupreetarora29@gmail.com<br>😄 Pronouns: she/her<br>⚡ Fun fact: I am always smiling
 
 
 ## 🌐 Socials:
